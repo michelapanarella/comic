@@ -1,5 +1,5 @@
 # comic
-This idea has taken up space both on the back and front burners of my mind since the Marvel/Netflix cancellation (#SaveDaredevil).
+This idea has taken up space both on the back and front burners of my mind since the Marvel/Netflix cancellation.
 
 Does appearance influence how long a comic book character will live? 
 
